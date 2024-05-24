@@ -1,4 +1,11 @@
-## Hi there 👋
+## **seja bem vindo** 💮
+
+### sou aluna da _alura_ e aqui voce vera meus projetos
+
+### meu e-mail 💌
+- 00001105990412sp@al.educacao.sp.gov.br
+  
+![](https://tenor.com/pt-BR/view/dog-smile-eeyeyy1-gif-26307072)
 
 <!--
 **jeniisa/jeniisa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

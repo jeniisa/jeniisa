@@ -5,7 +5,7 @@
 ### meu e-mail 💌
 - 00001105990412sp@al.educacao.sp.gov.br
   
-![](https://tenor.com/pt-BR/view/dog-smile-eeyeyy1-gif-26307072)
+![](https://media1.tenor.com/m/YAClYZzwPn8AAAAC/hello-hi.gif)
 
 <!--
 **jeniisa/jeniisa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
